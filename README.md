@@ -1,3 +1,3 @@
 <p align="center">
-    <img src=https://xxxref.com/wp-content/uploads/2020/01/xxxref_blackwhite_red.png />
+    <img src=https://xxxref.com/wp-content/uploads/2021/02/fake_projects.png />
 </p>
